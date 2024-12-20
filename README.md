@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @nikolofertynio
+- 👋 Hi, I’m @nikolofertynio1,1
 - 👀 I’m interested in ...sfd+
 - 
 - 🌱 I’m currently learning ...
