@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @nikolofertynio1,1
 - 👀 I’m interested in ...sfd+
 - 
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ...64
 - 💞️ I’m looking to collaborate on ...859
 - 📫 How to reach me ...
 - 😄 Pronouns: ...856
